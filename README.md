@@ -1,3 +1,3 @@
 # babitajiiiiii45
 
-I USED THIS REPO JUST TO GET BADGES GUY CHILL 
+I USED THIS REPO JUST TO GET those bagdes guys 
